@@ -218,4 +218,4 @@ Wildfrost is available as a full free version with all features unlocked and upd
 Dive into the world of Wildfrost today and master the art of strategic deck-building! Download now!
 
 ---
-**Last updated:** 2026-10-25 14:43:45 UTC
+**Last updated:** 2026-10-25 18:02:15 UTC
